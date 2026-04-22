@@ -66,4 +66,4 @@ An attacker who manipulates a trusted insider bypasses every technical control. 
 
 ---
 
-*For questions, collaboration, or speaking inquiries — connect on LinkedIn.*
+*For questions, collaboration, or speaking inquiries — connect on LinkedIn - https://www.linkedin.com/in/torrieyork/.*
